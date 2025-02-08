@@ -1,0 +1,1 @@
+# Sanayi-Tedarik-App
